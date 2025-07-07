@@ -1,1 +1,1 @@
-# Sem-1
+# COEP Semester - 1 Subjects
